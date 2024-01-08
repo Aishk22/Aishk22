@@ -1,0 +1,7 @@
+- 👋 Hi, I'm Aishwarya Kachhaway. I am an individual with a passion for Product Management. My professional journey has been driven by a keen interest in innovation and growth for B2B and B2C companies. Currently, Team Leader for an 
+e-commerce platform, leading international teams. Proven track record in startup environments, bridging B2B and B2C markets 
+for growth and innovation
+👀 I’m interested in  I'm fascinated by the dynamic world of products, and I am constantly seeking new opportunities to expand my knowledge and expertise. Whether it's staying updated on the latest industry trends, exploring innovative solutions, or engaging in meaningful discussions, I thrive on the continuous learning and growth that product offers.
+ 🌱 I’m currently learning Currently, my focus is on enhancing my skills in product management. I believe that staying adaptable and embracing new advancements is key to thriving in the ever-evolving landscape of B2B & SAAS Industry.
+  💞️ I’m looking to collaborate on  I am open to collaboration opportunities that align with my passion and expertise. If you share a similar enthusiasm for the product, I would love to connect and explore potential collaborations. Together, we can create meaningful and impactful contributions to the product industry. 
+- 📫 How to reach me ? Feel free to connect with me on LinkedIn https://www.linkedin.com/in/aishwarya-kachhaway/. I welcome discussions, collaborations, and networking opportunities.
